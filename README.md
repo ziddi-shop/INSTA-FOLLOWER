@@ -1,6 +1,6 @@
-# JACKING 
+# INSTA FOLLOWERS 
 
-IG ACCOUNT JACKING SCRIPT by  ziddi shop @ziddi-shop ....
+IG FOLLOWERS  SCRIPT by  ziddi shop @ziddi-shop ....
 
 
 
